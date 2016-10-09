@@ -6,6 +6,8 @@
   
   ![pic2](https://cloud.githubusercontent.com/assets/22065791/19179045/627de402-8c83-11e6-9ed8-1d89b3a4b57d.png)
   
+  ![pic3](https://cloud.githubusercontent.com/assets/22065791/19216975/63e9d06a-8dfc-11e6-9bf1-06718a616f7b.png)
+  
   ===
 
 2. **Identitas**
